@@ -9,3 +9,5 @@ https://www.eventbrite.com/e/blockchain-and-networking-security-token-offerings-
 http://sequoia-realestate.com/revolution-expo
 
 https://www.eventbrite.com/e/making-real-estate-tokenization-investment-popular-tickets-57548880250
+
+https://www.eventbrite.com/e/future-of-real-estate-w-blend-opendoor-unison-fintech-tickets-50358844660#
