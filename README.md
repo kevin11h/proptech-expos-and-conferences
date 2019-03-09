@@ -10,4 +10,6 @@ http://sequoia-realestate.com/revolution-expo
 
 https://www.eventbrite.com/e/making-real-estate-tokenization-investment-popular-tickets-57548880250
 
-https://www.eventbrite.com/e/future-of-real-estate-w-blend-opendoor-unison-fintech-tickets-50358844660#
+https://www.youtube.com/watch?v=ZXtwoXmdDS0 === https://www.meetup.com/cambrian-ventures/events/254218224/
+
+https://www.meetup.com/Cambrian-Fintech/events/258570036/
