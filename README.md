@@ -15,3 +15,5 @@
 + https://www.meetup.com/Cambrian-Fintech/events/258570036/
 
 + https://travelcon.org/
+
++ https://sweepbright.com/top-9-global-real-estate-conferences-to-attend-in-2019/
