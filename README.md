@@ -10,6 +10,8 @@
 
 + https://www.eventbrite.com/e/making-real-estate-tokenization-investment-popular-tickets-57548880250
 
++ https://www.meetup.com/en-AU/FIBREE-San-Francisco-Bay-Area/events/259343568/
+
 + https://www.youtube.com/watch?v=ZXtwoXmdDS0 === https://www.meetup.com/cambrian-ventures/events/254218224/
 
 + https://www.meetup.com/Cambrian-Fintech/events/258570036/
