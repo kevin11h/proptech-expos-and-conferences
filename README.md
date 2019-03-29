@@ -1,4 +1,4 @@
-# proptech-expos-and-conferences
+# proptech-expos-events-and-conferences
 
 + https://www.inman.com/event/inman-connect-new-york-2019/?page=sponsors
 
@@ -21,3 +21,5 @@
 + https://sweepbright.com/top-9-global-real-estate-conferences-to-attend-in-2019/
 
 + https://www.facebook.com/events/1942695302519163/
+
++ https://www.eventbrite.com/e/intro-to-real-a-tech-powered-brokerage-registration-58722832573
