@@ -1,4 +1,4 @@
-# proptech-expos-events-activities-and-conferences-list
+# proptech-expos-events-activities-and-conferences-master-list
 
 + https://www.inman.com/event/inman-connect-new-york-2019/?page=sponsors
 
