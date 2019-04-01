@@ -23,3 +23,5 @@
 + https://www.facebook.com/events/1942695302519163/
 
 + https://www.eventbrite.com/e/intro-to-real-a-tech-powered-brokerage-registration-58722832573
+
++ https://www.eventbrite.com/e/crypto-certified-course-blockchain-and-cryptocurrency-in-real-estate-tickets-58670791918?aff=ebdssbdestsearch
