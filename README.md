@@ -25,3 +25,9 @@
 + https://www.eventbrite.com/e/intro-to-real-a-tech-powered-brokerage-registration-58722832573
 
 + https://www.eventbrite.com/e/crypto-certified-course-blockchain-and-cryptocurrency-in-real-estate-tickets-58670791918?aff=ebdssbdestsearch
+
++ https://www.fresnoshows.com/tiny-house-expo
+
++ https://www.youtube.com/watch?v=mX2rzFL9hL4
+
++ https://www.ci.east-palo-alto.ca.us/Archive/ViewFile/Item/410
