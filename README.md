@@ -31,3 +31,5 @@
 + https://www.youtube.com/watch?v=mX2rzFL9hL4
 
 + https://www.ci.east-palo-alto.ca.us/Archive/ViewFile/Item/410
+
++ https://www.eventbrite.com/e/investor-briefing-tickets-85290543311?aff=ebdshpfsecondarybucket
